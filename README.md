@@ -1,5 +1,5 @@
 # HELLO INTERNS
 
-## Hello from the belfast cafe
+## Hello from the belkfast cafe
 
 ps. go back andmake the typo for next year
